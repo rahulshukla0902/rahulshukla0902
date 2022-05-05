@@ -1,0 +1,3 @@
+- 👋 Hey!! I’m RAHUL SHUKLA
+- 👀 I’m pursuing Bachelor of Technology in Computer Science and Engineering from GL Bajaj Institute of Technology and Management , Greater Noida.
+- I'm interested in building creative and interactive projects and contribute to our community 
